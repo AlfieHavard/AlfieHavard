@@ -4,7 +4,7 @@
 
 ## About me
 
-- I am a coder from London, England, United Kingdom
+- I am a coder from Europe.
 
 ### Connect with me:
 
